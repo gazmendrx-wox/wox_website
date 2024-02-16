@@ -1,2 +1,4 @@
 - Welcome to readme file for wox_website
 - ni ndryshim nga Aulona Limani
+- Hej une jam Bajram Aqifi
+- Hej une jom Clirim Kamberi
