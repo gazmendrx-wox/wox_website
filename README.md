@@ -2,4 +2,5 @@
 - ni ndryshim nga Aulona Limani
 - Hej une jom Gazmend Rexhepi
 - Hej une jam Bajram Aqifi
+- Hej une jom Clirim Kamberi
 - Une jam Jurik Latifi
