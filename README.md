@@ -4,3 +4,4 @@
 - Hej une jom Clirim Kamberi
 - Hej une jom Valon Hajredini
 - Une jam Jurik Latifi
+- Ndryshim nga Jurik Latifi
